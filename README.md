@@ -1,2 +1,0 @@
-# mae
-My Story
